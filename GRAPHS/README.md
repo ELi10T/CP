@@ -1,3 +1,3 @@
-## Resources followd till now
+## Resources followed till now
 
 CodeNCode -- Youtube Channel
